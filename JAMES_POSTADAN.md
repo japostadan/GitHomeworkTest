@@ -1,0 +1,5 @@
+- My name is James Postadan
+- My favourite sport is **Badminton** because it was the first sport I played in competetive scene.
+- Grilled chicken is my favourite food.
+- [[https://www.youtube.com/watch?v=1kz6hNDlEEg&list=RDOH9A6tn_P6g&index=4|That's What You Get]]
+- I use my pc without a mouse 🐭.
